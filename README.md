@@ -4,6 +4,6 @@
 
 kyutest ponies -> <a href="https://github.com/eunvy">@eunvy</a> <a href="https://github.com/paperings">@paperings</a> <a href="https://github.com/REVERISTCALICO">@REVERISTCALICO</a> <a href="https://github.com/darlingness">@darlingness</a> <a href="https://github.com/needyourbIood">@needyourblood</a> <a href="https://github.com/STARPKMN">@STARPKMN</a> <a href="https://github.com/HOMESlCK">@HOMES1CK</a> <a href="https://github.com/B1-SP1Der">@B1-SP1Der</a> <a href="https://github.com/toemuncher3000">@toemuncher3000</a> <a href="https://github.com/constrz">@constrz</a> <a href="https://github.com/MelancholicDays">@MelancholicDays</a> <a href="https://github.com/vivibasu">@vivibasu</a>
 
-honorable mentions -> <a href="https://github.com/tarofgt">@tarofgt</a> <a href="https://github.com/antlerqueen">@antlerqueen</a> <a href="https://github.com/CoId-BIood">@CoId-BIood</a> <a href="https://github.com/sen-aw">@sen-aw</a> <a href="https://github.com/nameless-boy">@nameless-boy</a>
+honorable mentions -> <a href="https://github.com/tarofgt">@tarofgt</a> <a href="https://github.com/antlerqueen">@antlerqueen</a> <a href="https://github.com/CoId-BIood">@CoId-BIood</a> <a href="https://github.com/sen-aw">@sen-aw</a> <a href="https://github.com/nameless-boy">@nameless-boy</a> <a href="https://github.com/njqh">@njqh</a> 
 
 if you want to be added/removed, go to the <a href="https://qonytowners.straw.page">strawpage</a> and we will take the action as soon as we can. we will add more to this list in the future!
