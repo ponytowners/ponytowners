@@ -4,7 +4,7 @@
 
 #1 ponytowners -> <a href="https://github.com/seraphoria">@seraphoria</a> <a href="https://github.com/C0GNITION">@C0GNITION</a> <a href="https://github.com/fuelody">@fuelody</a> <a href="https://github.com/bandaged-wounds">@bandaged-wounds</a> <a href="https://github.com/5uguru">@5uguru</a> <a href="https://github.com/sundaycest">@sundaycest</a> <a href="https://github.com/undeadlost">@undeadlost</a> <a href="https://github.com/screwIIum">@screwIIum</a> <a href="https://github.com/vampiresoul">@vampiresoul</a> <a href="https://github.com/tirgery123">@tirgery123</a>
 
-lonely ponytowner -> <a href="https://github.com/tarofgt">@tarofgt</a>
+lonely ponytowner -> <a href="https://github.com/tarofgt">@tarofgt</a> <a href="https://github.com/semahtary">@semahtary</a>
 
 cool ponytowners -> <a href="https://github.com/9ANTZ">@9ANTZ</a> <a href="https://github.com/needyourbIood">@needyourblood</a> <a href="https://github.com/antlerqueen">@antlerqueen</a> <a href="https://github.com/toemuncher3000">@toemuncher3000</a> <a href="https://github.com/emariyaoi">@emariyaoi</a> <a href="https://github.com/STARPKMN">@STARPKMN</a> <a href="https://github.com/castIevania">@casteIevania</a> <a href="https://github.com/akpdox">@akpdox</a>
 
