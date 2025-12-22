@@ -10,6 +10,8 @@ cool ponytowners -> <a href="https://github.com/9ANTZ">@9ANTZ</a> <a href="https
 
 kyutest ponies -> <a href="https://github.com/eunvy">@eunvy</a> <a href="https://github.com/paperings">@paperings</a> <a href="https://github.com/REVERISTCALICO">@REVERISTCALICO</a> <a href="https://github.com/darlingness">@darlingness</a>   <a href="https://github.com/HOMESlCK">@HOMES1CK</a> <a href="https://github.com/B1-SP1Der">@B1-SP1Der</a> <a href="https://github.com/constrz">@constrz</a> <a href="https://github.com/MelancholicDays">@MelancholicDays</a> <a href="https://github.com/vivibasu">@vivibasu</a> <a href="https://github.com/DOGq3">@DOG3q</a> <a href="https://github.com/Iovefool">@Iovefool</a> <a href="https://github.com/malepregnancy">@malepregnancy</a> <a href="https://github.com/N1TEB0I">@N1TEB0I</a>
 
+swag ponytowner -> <a href="https://github.com/sk8rSwag">@sk8rSwag</a>
+
 honorable mentions -> <a href="https://github.com/CoId-BIood">@CoId-BIood</a> <a href="https://github.com/sen-aw">@sen-aw</a> <a href="https://github.com/njqh">@njqh</a> <a href="https://github.com/GRILLEDCHE3SE">@GRILLEDCHE3SE</a> <a href="https://github.com/otterhop">@otterhop</a> <a href="https://github.com/SleepyHoshii">@SleepyHoshii</a> <a href="https://github.com/SUKIPUPPYDOG">@SUKIPUPPYDOG</a> <a href="https://github.com/Senisafreako">@Senisafreako</a> <a href="https://github.com/daffodildakota">@daffodildakota</a> <a href="https://github.com/Angeliesz">@Angeliesz</a>
 
 if you want to be added/removed or change your place, go to the <a href="https://qonytowners.straw.page">strawpage</a> and we will take the action as soon as we can. we will add more to this list in the future! this project is simply a thing we do in our free time.
